@@ -1,1 +1,0 @@
-# nastavnici-strojno
